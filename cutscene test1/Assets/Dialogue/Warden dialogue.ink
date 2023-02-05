@@ -1,0 +1,2 @@
+You got balls on you lad or lady or apachi attack helicopter or whatever you identify as you really think you can beat me huh even the developers are on my side isnt that right#speaker:warden
+No not really i want our players to actually play the game and enjoy themselves not because we want money and good reviews, definitely not we just want our players respect 100% you can trust us (warden i give you 5 pounds if you beat them)#speaker:narrator 

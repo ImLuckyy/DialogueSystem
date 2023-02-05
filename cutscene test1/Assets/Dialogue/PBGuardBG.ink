@@ -1,0 +1,2 @@
+Why does this happen now i cant afford to waste this time on a stupid riot we must prepare for the president speech right now 
+You back off you dont want to mess with the sergeant pizza i worked hard for this cant you tell from my totally real mustache huh 
