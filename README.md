@@ -10,5 +10,6 @@
  There is player prefs so if you want to experiment on this feel free
  
  TrevorMock youtube video did help with the base systems
+ https://www.youtube.com/watch?v=vY0Sk93YUhA&t=1493s
  But this will be updated to the full project soon 
  
